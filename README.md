@@ -10,3 +10,6 @@
 
 ## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini 
 [Orangnya unik unik dan lumayan seru]
+
+## Harapan Kuliah 
+[Mendapat pengalaman belajar, peningkatan karir, dan teman teman yang mendukung] 
